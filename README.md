@@ -5,7 +5,7 @@
 - 📫 How to reach me 
       TG: @i4mchan
       IG: @notchnprk
-- 😄 Pronouns: he/him/his
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: Loves to sleep. Has a scary resting b face.
 
 <!---
